@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-![image](https://avatars.githubusercontent.com/u/164223891?v=4)
+![image](https://ibb.co/BccgDxH)
 
 
 <!--
