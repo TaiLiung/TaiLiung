@@ -1,4 +1,4 @@
-### Hi there 👋
+### Absolutei in Valorant From CS:GO <3
 
 ![image](https://i.ibb.co/CmmndZp/4746a26c3ab2184d808847d7327d1187-1000x642x1.jpg)
 
