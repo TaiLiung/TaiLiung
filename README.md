@@ -1,5 +1,8 @@
 ### Hi there 👋
 
+![image](https://avatars.githubusercontent.com/u/164223891?v=4)
+
+
 <!--
 **TaiLiung/TaiLiung** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
